@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NoobQ69
+- 👀 I’m interested in electronic,coding, network,etc...
+- 🌱 I’m currently learning mechatronic.
